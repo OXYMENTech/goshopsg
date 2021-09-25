@@ -1,1 +1,1 @@
-# Goshop.sh
+# Goshop.sg
